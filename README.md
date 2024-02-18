@@ -5,5 +5,3 @@ csdsdasghcchfthxtf
 vxcvxzc
 vmhnhcgng
 ggrdgrg
-gthstrgtrarw
-rgfgggg
